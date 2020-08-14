@@ -1,1 +1,1 @@
-### mediocre programmer and artist
+### programmer and a mediocre artist
